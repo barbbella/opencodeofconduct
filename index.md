@@ -39,7 +39,7 @@ Our community prioritizes marginalized people’s safety over privileged people�
 - Reasonable communication of boundaries, such as “leave me alone,” “go away,” or “I’m not discussing this with you”
 - Refusal to explain or debate social justice concepts
 - Communication in a ‘tone’ you don’t find congenial
-- Criticism of racist, sexist, cissexist, or otherwise oppressive behavior or assumptions
+- Criticism of racist, sexist, cissexist, homophobic, or otherwise oppressive behavior or assumptions
 
 
 ### Diversity Statement
